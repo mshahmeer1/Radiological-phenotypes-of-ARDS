@@ -1,1 +1,0 @@
-# Radiological-phenotypes-of-ARDS
